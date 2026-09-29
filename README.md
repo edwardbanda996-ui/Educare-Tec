@@ -1,4 +1,4 @@
-# Welcome to Educare-Tec 👋
+# Welcome to Educare-Tec EduNex — Education + next generation👋
 
 ## Education • Technology • Data • Digital Skills
 
